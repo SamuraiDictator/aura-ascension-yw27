@@ -1,4 +1,4 @@
-
+Experience aura ascension like never before with aura ascension smart Scripts, the #1 Script. Includes anti-ban and private server access for
 
 
 
